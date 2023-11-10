@@ -4,8 +4,6 @@
 
 please contact me on Facebook
 
-www.facebook.com/mr.SudoDev
+www.facebook.com/huncker.recovery
 
 
-
-Lucifer ng litmatch:)
